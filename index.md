@@ -4,8 +4,8 @@
 
 ### Phone Number: [(480) 848-0263](tel:4808480263)
 
-### Email: [baylorvrabel@gmail.com](mailto:baylorvrabel@gmail.com]
+### Email: baylorvrabel@gmail.com
 
-### [Instagram](instagram.com/baylorvrabel)
+### [Instagram](https://instagram.com/baylorvrabel)
 
-### [Snapchat](snapchat.com/add/baylor_vrabel)
+### [Snapchat](https://snapchat.com/add/baylor_vrabel)
